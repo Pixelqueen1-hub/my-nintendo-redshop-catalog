@@ -1,0 +1,1 @@
+# my-nintendo-redshop-catalog
